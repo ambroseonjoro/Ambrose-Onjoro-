@@ -1,2 +1,3 @@
 # Ambrose-Onjoro-
-Journalist, Teacher and author 
+Ambrose Onjoro Wangira is a passionate journalist, dedicated teacher, and prolific book writer whose work is rooted in storytelling, education, and community impact. With a deep love for language and culture, Ambrose uses his journalistic voice to spotlight untold stories, address social issues, and inspire dialogue across generations. As an educator, he is committed to nurturing critical thinking and creativity in his students, encouraging them to engage with the world through informed perspectives. His literary work—often rich in African context, humor, and emotional depth—explores themes of identity, justice, and transformation. Whether in the classroom, the newsroom, or within the pages of a novel, Ambrose remains driven by the belief that words can inform, empower, and change lives.
+
